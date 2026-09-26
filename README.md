@@ -203,4 +203,4 @@ This project is for research and educational purposes only.
 **Version**: v0.0.2  
 **Status**: Production Ready
 
-⚡ **Strike clean. Roost warm. Talons sharp.**
+⚡ **Strike clean. Roost warm. fuck u
